@@ -1,0 +1,2 @@
+Scientific HMS LTP(Human Memory type Storage long term potentiation) is designated to be useful and comfortable app
+based not just on pure logic but rather empirical data and biological mechanisms of memory type storage of human
